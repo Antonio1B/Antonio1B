@@ -10,5 +10,4 @@ Meu nome é Antônio Marchese Pereira
 
 toniboy008@gmail.com
 
-![](https://tenor.com/pt-BR/view/jojo's-bizarre-adventure-chibi-dancing-gif-12094200618809177614)
-
+![](https://media.tenor.com/p9c7Yo5uNg4AAAAi/jojo%27s-bizarre-adventure-chibi.gif)
