@@ -10,4 +10,4 @@ Meu nome é Antônio Marchese Pereira
 
 toniboy008@gmail.com
 
-![](https://tenor.com/pt-BR/view/tusk-act4-jojo-jojos-bizarre-adventure-johnny-joestar-jojo-pose-gif-24833337)
+![](https://media1.tenor.com/m/405-_-5Xv6wAAAAd/tusk-act4-jojo.gif)
